@@ -1,1 +1,1 @@
-stocktech
+Delete
